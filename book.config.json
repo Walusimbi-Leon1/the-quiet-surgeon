@@ -1,0 +1,21 @@
+{
+  "title": "The Quiet Surgeon",
+  "subtitle": "Memoir",
+  "genre": "Medical memoir",
+  "author": "Walusimbi Leon",
+  "description": "The true-feeling account of a trauma surgeon working the night shift of an underfunded city hospital \u2014 the lives saved, the ones lost, and the silence that holds it together.",
+  "style": "Spare, unsentimental first-person. Clinical precision alternating with raw human observation. No melodrama.",
+  "characters": "Dr. Leon \u2014 the surgeon, weary, precise, compassionate; the ward \u2014 a cast of patients and nurses who recur.",
+  "setting": "A public hospital in a sprawling modern city, present day.",
+  "notes": "Begin mid-shift with a crashing patient. Show competence under pressure. Let reflection come in the quiet between cases. Ground every scene in real detail.",
+  "chapterTitle": "Chapter",
+  "mdFiles": [
+    "v2.0/book.md"
+  ],
+  "htmlFiles": [
+    "v2.0/book.html"
+  ],
+  "indexInject": null,
+  "mdHeadingLevel": 3,
+  "targetWords": 2000
+}
