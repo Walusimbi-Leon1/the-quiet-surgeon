@@ -234,6 +234,122 @@ I sat there for a long time. I thought about Marcus Reed and Jasmine and the boy
 
 Then I stood up, walked out of the chapel, and went back to work.
 
+### Chapter 4 — The Hour Between
+
+The call came at 2:47 a.m. I know because I looked at the clock on the wall of the break room. I was on my second cup of coffee—cold, but I didn't care—and I was thinking about Marcus Reed. I'd been thinking about him all night. The way he'd said *I've been tired for a long time.* The way his hand had shaken. The way the bullet had missed his heart by two centimeters. Two centimeters. The difference between a funeral and a conversation.
+
+The trauma pager went off. The voice on the other end was Carla, one of the night nurses. Her voice was flat, the way it gets when she's already seen too much. "GSW to the abdomen, male, mid-twenties. ETA four minutes. BP's dropping. They're running lights."
+
+I set the cup down. I walked to the trauma bay. I didn't run. Running doesn't help. You get there when you get there, and the body is doing what the body is doing regardless.
+
+The room was already set up. The monitors were on. The oxygen was hissing. The nurses—Carla, Martinez, and a student named Reyes who was on her first trauma rotation—were in their positions. I pulled on my gloves and I stood at the foot of the bed and I waited.
+
+The doors burst open. The paramedics rolled him in. He was young—younger than Marcus, maybe twenty-two, maybe twenty-three. His face was pale, the kind of pale that comes from blood loss. His hands were gripping the sides of the stretcher, and his eyes were wide open, and he was looking at the ceiling like he was trying to memorize the lights.
+
+"Male, twenty-four, gunshot wound to the right lower quadrant," the paramedic said. "Wound is through-and-through. Entry anterior, exit posterior. Blood loss estimated at two liters on scene. BP's eighty over forty. Heart rate one-thirty. He's conscious."
+
+"Name?" I said.
+
+"Tyrone. Tyrone Washington."
+
+I moved to the side of the bed. I pressed my hands on his abdomen. It was rigid. Board-like. The blood was pooling under him, soaking through the dressings. I lifted the dressing and looked at the wound. Small. Neat. The kind of hole a nine-millimeter makes when it goes in clean. It's the path inside that matters. The bullet doesn't care about neat.
+
+"Get him to the OR," I said. "I need a laparotomy tray. Type and cross. Call the blood bank and tell them I want four units in the room before I open him."
+
+"Dr. Leon—" Carla started.
+
+"I know. Just do it."
+
+We moved him. I walked beside the stretcher, my hand on his arm. He was shaking. Not from cold. From fear. I've seen it a hundred times. A thousand times. The body knows what's happening even when the mind hasn't caught up yet.
+
+"Tyrone," I said. "Look at me."
+
+He turned his head. His eyes were dark and wide. He was so young. Too young for this. But they're always too young. The gunshot wounds, the knife wounds, the car crashes—they're always too young, and they always have someone waiting for them, or someone they're running from.
+
+"I'm going to take care of you," I said. "You're going to be okay. Do you understand?"
+
+He nodded. He didn't believe me. That's fine. I don't need him to believe me. I just need him to stay with me.
+
+We got him onto the OR table. The anesthesiologist—Dr. Okafor, who'd been in the building longer than anyone, who never raised his voice and never missed a detail—was already there. He had the mask over Tyrone's face, and he was talking to him in a low, steady voice. The same voice he used for every patient. Calm. Reassuring. The voice that says *I've done this a thousand times before, and I'll do it a thousand times after, and you're in good hands.*
+
+"What's his pressure?" I said.
+
+"Seventy over thirty," Okafor said. "He's crashing."
+
+"Give me more blood. Push it."
+
+I made the incision. Midline. Fast. The scalpel went through skin and fat and muscle, and the blood welled up, dark and thick. The abdomen opened like a book I didn't want to read.
+
+The bullet had nicked the small intestine. Perforated the mesentery. There was a tear in the inferior vena cava—a slow, oozing tear that was filling the abdomen with blood. Not the dramatic spurting of an artery. The quiet, relentless bleeding of a vein that's been nicked. The kind that kills you while you're looking for something else.
+
+"Suction," I said.
+
+Martinez handed me the suction. I cleared the field. I could see the injury now. A one-centimeter tear in the wall of the IVC. The blood was welling up through it, dark and unending.
+
+"Clamp," I said.
+
+I took the clamp. I placed it. I closed it. The bleeding stopped.
+
+The room went quiet. The hiss of the ventilator. The beep of the monitor. The sound of Okafor's voice, still low, still steady, as he adjusted the pressure. The blood was going in. The blood was staying in.
+
+"Pressure's coming up," Okafor said. "Ninety over fifty."
+
+"Good," I said. I looked at the tear. I could repair it. It was small enough. I'd done it before. I'd done it a hundred times before. But the body was tired. The body had been bleeding for an hour. The body was a house with the foundation cracked and the walls leaning.
+
+I looked at Tyrone's face. He was under now. The fear was gone from his eyes, replaced by the blankness of anesthesia. I looked at his hands. They were lying at his sides, still. The hands that had been gripping the stretcher rails. The hands that had been shaking.
+
+I thought about Marcus. I thought about the bullet that had missed his heart. I thought about the bullet that had hit this boy's gut. I thought about all the bullets, all the knives, all the broken glass and shattered bones and shattered lives that had passed through this room. The room didn't care. The room just held them. The lights hummed. The monitors beeped. The body did its work, and the surgeon helped.
+
+I repaired the tear. I resected the damaged section of small intestine. I washed out the abdomen. I closed. I did it all with the same hands that had closed Marcus's chest, the same hands that had held the clamp, the same hands that had signed the death certificates and the discharge papers and the prescriptions for painkillers that would never be enough.
+
+When I was done, I stepped back from the table. I looked at the clock. It was 4:15. An hour and a half. It had felt like ten minutes. It had felt like a lifetime.
+
+"He's stable," Okafor said. "Vitals are holding."
+
+I nodded. I stripped off my gloves. I walked out of the OR and into the hallway. The hallway was empty. The lights were dim. The hospital was between moments—the rush of the trauma, the quiet of the hours before dawn, the shift change that would come at seven with its own set of problems and its own set of hands.
+
+I walked to the break room. I sat down. I looked at the cold cup of coffee on the table. I didn't pick it up. I just sat there and let the quiet settle around me.
+
+Carla came in a few minutes later. She sat down across from me. She didn't say anything. She just sat there, the way she always did when the night had been heavy. We'd been working together for six years. She knew when I needed silence and when I needed someone to talk. This was a silence night.
+
+"The kid's going to make it," she said finally. "Okafor's sending him to the ICU. He'll be groggy in the morning, but he'll be groggy and alive."
+
+I nodded.
+
+"His mother's downstairs," Carla said. "She got here about ten minutes ago. Somebody called her. She's sitting in the waiting room. She keeps asking if he's going to be okay."
+
+"What did you tell her?"
+
+"I told her he was in surgery. I told her he had a good surgeon." She paused. "You want me to tell her he's out?"
+
+I thought about it. I thought about the mother in the waiting room. I thought about the boy with the motorcycle helmet and his mother's hand. I thought about Jasmine, who'd sat all night at Marcus's bedside. I thought about all the mothers, all the girls, all the fathers, all the friends who sat in those chairs and waited for the surgeon to come through the doors and tell them something that would make the waiting worth it.
+
+"No," I said. "I'll tell her myself."
+
+Carla looked at me. She didn't say anything. She just nodded and stood up and walked out of the break room, leaving me alone with the cold coffee and the hum of the lights and the weight of the night.
+
+I sat there for another minute. Then I stood up. I walked out of the break room and down the hallway to the waiting room. The mother was sitting in the corner, in the same chair where Jasmine had sat, where the boy's mother had sat, where all of them sat, in the same chairs, waiting for the same words.
+
+She stood up when she saw me. She was a small woman, older than I'd expected, with gray in her hair and lines around her eyes. She was wearing a nurse's uniform. She'd come straight from work. She hadn't even changed.
+
+"Dr. Leon?" she said.
+
+"Yes."
+
+"Is my son going to be okay?"
+
+I looked at her. I thought about the tear in the vein. I thought about the blood, the suction, the clamp. I thought about the way his body had fought, the way it had held on, the way it had given me just enough time to fix what was broken.
+
+"He's going to be okay," I said. "He's in the ICU now. He'll be there for a few days, but he's going to be okay."
+
+She closed her eyes. She didn't cry. She just stood there with her eyes closed, and I watched her shoulders drop, the tension leaving her body like air leaving a tire. Then she opened her eyes and she looked at me.
+
+"Thank you," she said.
+
+I didn't say anything. I just nodded. I turned and walked away, back down the hallway, past the nurses' station, past the empty rooms, past the chapel with its dove-or-flame window, and I went back to work.
+
+The night wasn't over yet. There would be more. There's always more. But for now, in this hour between the trauma and the dawn, the quiet held, and I carried it with me, the way I always did, the way we all did, through the dark hours and into the light.
+
 ---
 
 ## About This Book
