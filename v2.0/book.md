@@ -350,6 +350,72 @@ I didn't say anything. I just nodded. I turned and walked away, back down the ha
 
 The night wasn't over yet. There would be more. There's always more. But for now, in this hour between the trauma and the dawn, the quiet held, and I carried it with me, the way I always did, the way we all did, through the dark hours and into the light.
 
+### Chapter 6 — The Quiet That Follows
+
+The hallway from the waiting room back to the surgical wing felt longer than it had an hour ago. Every fluorescent light hummed a slightly different frequency, a discordant chorus that vibrated in the base of my skull. The linoleum, usually a dull, predictable gray, showed every scuff and ghost of a gurney wheel. My scrubs were stiff with dried sweat and a fine spray of something I didn’t want to identify. The knot of the gown at my neck felt like a garrote.
+
+At the nurses’ station, Carla was already charting, her fingers moving with a practiced, weary efficiency. She didn’t look up as I approached, but she pushed a fresh cup of coffee toward the edge of the desk. It was black. It was hot. It smelled like burnt necessity.
+
+“IVU for room 4,” she said, her voice flat. “Mr. Henderson. His catheter’s blocked. Again.”
+
+I took the coffee. The heat was a shock against my chilled skin. “Paging urology.”
+
+“They’re two deep in a scopes case. Said it could wait.”
+
+“Henderson’s a Medicare Advantage patient with a stage four sacral decubitus,” I said. “That’s why he’s here. Let it wait and he’ll get septic before they even flush the scope. I’ll do it.”
+
+Carla made a note. “Your favourite.”
+
+It wasn’t. It was the kind of gritty, unglamorous, necessary work that the textbooks glossed over and the public never saw. It was about maintaining the fragile, broken bodies we’d been handed until the primary problem could be addressed. It was the work of the night.
+
+I found Henderson in his side room, a perpetual frown etched between his brows, the sheet pulled up to his chest. The air had the faint, sweetish smell of poor perfusion. His eyes were closed, but his jaw was tight.
+
+“Mr. Henderson,” I said. “I’m Dr. Leon. We’re going to take care of that catheter for you.”
+
+His eyes opened, rheumy and suspicious. “More needles.”
+
+“Just a flush. Try to stay still.”
+
+I washed my hands, the hot water another shock. I pulled on gloves, the latex snapping against my wrists. The kit was on the bedside table. I worked with a quiet, mechanical focus. The obstruction was old, calcified urine. It required patience and a gentle but firm irrigation. I talked him through it, my voice a low drone, explaining each step before I did it. It was a rhythm. He grunted when I hit a blockage, a sound of old, chronic pain that never truly went away.
+
+When the flow finally returned, murky and then clearer, he let out a long, slow breath. The permanent tension in his shoulders eased a fraction.
+
+“Better?” I asked.
+
+“Yeah,” he mumbled, looking away. “Thanks.”
+
+It was a small victory. The kind that filled no one with pride but myself, and even that was a thin, tired thing. I disposed of the materials, washed my hands again. The clock on the wall read 4:45 AM. The deepest trough of the night. The city outside was still dark, but the hospital was beginning its slow, groaning turn toward morning. The air shifted, carrying the faintest promise of daybreak through the grimy windows. It was a promise that meant nothing to the people inside these walls.
+
+I walked back to the surgical floor. The hallways were quieter now, the aftermath of the trauma’s main event. A few nurses moved with the soft, efficient tread of those conserving energy. From behind a closed door, I heard the rhythmic beep of a ventilator, a mechanical metronome counting out a life. From another, the faint, distressed murmur of a patient waking from anesthesia, confused and afraid.
+
+I paused outside the ICU. Through the glass panel in Tyrone’s door, I could see him. He was a still shape under the white sheet, a web of tubes and wires connecting him to the blinking, beeping machines. His mother was in the chair beside his bed now. She hadn’t gone home. She was leaning forward, her hand resting lightly on the blanket over his arm, her forehead almost touching the bed rail. She was watching the monitors as if she could learn their language, could understand the lines and numbers that now stood between her son and the world.
+
+I didn’t go in. The sight was enough. It was the part of the work you carried with you, the images that settled in the back of your mind and stayed. The ones that made the exhaustion feel less like emptiness and more like a weight.
+
+I retreated to the break room again. The cold coffee was still there. I tipped it down the sink, the dregs sliding away. I made a new cup, black again. I sat at the table. The silence in here was different from the silence of the hallway. This was a hollowed-out silence, the silence of a machine powered down. My body was a vessel for fatigue. Every joint ached. My back was a rigid board of tension. The adrenaline that had carried me through the last three hours had evaporated, leaving behind a gritty, cellular exhaustion.
+
+Carla appeared in the doorway. “Chen’s incoming. Six-car pileup on the interstate. Two critical. ETA ten minutes.”
+
+The words landed in the quiet room like stones. I felt them settle in my gut. I didn’t say anything. I just drained the new coffee in two scalding gulps, the heat doing nothing for the weariness, and stood up.
+
+“Your hands shaking?” Carla asked. Her tone was neutral. A clinical question.
+
+I held them out. They were steady. Still. The same hands that had clamped the vena cava. The same hands that had cleared the blockage for Mr. Henderson. They were tools. They did the work. The rest of me could fall apart later.
+
+“Good,” she said. “Go scrub. I’ll meet you in Trauma 1.”
+
+The scrub sink was cold and loud. The water ran over my hands, my forearms, sluicing away the invisible residue of the last hours. I scrubbed with the Friction brush, the stiff bristles reddening my skin. It was a ritual. A reset. Under the water, the noise of the hospital faded. The beeps, the murmurs, the distant hum of the city—all of it was muted. There was only the water, the soap, and the methodical motion of my own hands. It was the only peace I would get.
+
+I rinsed. I dried with a sterile towel. I walked to the trauma bay. The bright lights hummed, waiting. The gurney was empty, the paper covering it crisp and white, a blank page. Carla was there, setting up the intubation tray. Martinez was pulling on a new pair of gloves. Okafor was adjusting the blood pressure cuff on the arm of a waiting manikin we used for practice during the lulls.
+
+No one spoke. We didn’t need to. We were a unit, a set of interlocking gears waiting for the engine to turn.
+
+I heard the ambulance before I saw it. The distant wail, growing louder, sharper, a needle threading through the fabric of the dawn. It was the sound of the next crisis. The sound that would fill the silence. The sound that would fill me.
+
+I stood at the head of the gurney, my hands held up and away from my body, sterile and ready. The doors burst open. The paramedics came in fast, talking fast, their voices cutting through the hum of the lights. I saw the flash of orange trauma shears, the pale face of a boy on the backboard, the frantic pressure of a gloved hand on a wound.
+
+The quiet was over. The work began. Again.
+
 ---
 
 ## About This Book
